@@ -18,7 +18,7 @@
   <img src="https://c.top4top.io/p_2069qnvob1.jpg" /></>
 </p>
 
-- 👼 My name is Zeeone 
+- 👼 My name is Januar
 - 🗣️ I am 17 years old 
 - 🔭 I am not programmer
 
